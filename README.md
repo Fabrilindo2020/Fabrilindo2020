@@ -1,0 +1,1 @@
+Tenho 18 anos, moro em Goiânia (GO) e sou apixonado por programação e música! Sou iniciante no universo da programação, caçador oficial de bugs e quanto mais aprendo e mais passo raiva, mais eu amo tudo isso!
